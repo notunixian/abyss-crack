@@ -19,6 +19,4 @@ Lenoob
 
 Charlie
 
-autumn/azur (love u)
-
 everyone else that i showed my cracks to
