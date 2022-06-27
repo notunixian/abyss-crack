@@ -3,6 +3,7 @@ Download the latest version of the AbyssClient crack by going to the [releases t
 
 # Instructions
 Download the latest DLL by going to the release tab (link is above) and place it in your Mods folder
+
 **NOTE:** you require AstralBypass for this to work.
 
 # The reasoning behind this crack
