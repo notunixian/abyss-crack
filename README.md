@@ -6,7 +6,11 @@ So in whole, I don't like Killer or Bunny.
 
 # Shoutouts
 Hey-Its-Ben
+
 Lenoob
+
 Charlie
+
 autumn/azur (love u)
+
 everyone else that i showed my cracks to
