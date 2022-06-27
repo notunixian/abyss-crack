@@ -1,3 +1,6 @@
+# Download
+Download the latest version of the AbyssClient crack by going to the releases tab [here](https://github.com/notunixian/abyss-crack/releases/latest)
+
 # The reasoning behind this crack
 To make it clear that me (unixian) was never on anyone's side, I planned to crack abyss and release it from the start.
 Due to some complications (me being stupid while trying to dump it) I was banned and tried to plea to Bunny to key my key unbanned.
